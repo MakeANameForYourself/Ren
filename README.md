@@ -14,7 +14,7 @@ disrespectful and lack empathy ppl(some) ppls go far away or iwec
 fun fact (about meh) 
 
 I like: 
-ships - MEDHAMMERBOX(phight) TTHEY MY GOATS, Zuka x broker, and SWOCKET!/durr face 
+ships - MEDHAMMERBOX(phight) TTHEY MY GOATS, Zuka x broker, and SWOCKET!
 
 fav color - uskskshsis blue and green, technically cyan, wait maybe Turquoise/teal..oh wait aqua?? 
 
